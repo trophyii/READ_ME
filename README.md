@@ -1,4 +1,5 @@
-<p align="center"> trophy , bodily 16 [osddsys] / any prns except they </p>
+<p align="center"> trophy , bodily 16 / any prns except they </p>
+<p align="center"> osdd-sys , introject heavy </p>
 <p align="center"> heavily touch comforted! pls c+h </p>
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=trifIe&color=grey&label=trifelings"> </p>
 

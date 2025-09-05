@@ -1,4 +1,4 @@
-<p align="center"> trophy , bodily 16 / any prns except they </p>
+<p align="center"> trophy / vee , bodily 16 / any prns except they </p>
 <p align="center"> osdd-sys , introject heavy </p>
 <p align="center"> heavily touch comforted! pls c+h </p>
 <p align="center"> i'm always afk / offtab , pls whisp me if you want to talk </p>

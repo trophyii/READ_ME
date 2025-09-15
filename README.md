@@ -10,4 +10,4 @@
 
 <p align="center"> i love trife lots , it's ok if you don't like </p>
 <p align="center"> i also really love track and goldenwood , i gatekeep because i make first and im its #1 shipper </p>
-<p align="center"> p.s. dni if your name is john, "jeff", or knific2 :/// :barf_emoji: </p>
+<p align="center"> art by _flipkat_ , trophy/knife belongs to me! </p>

@@ -3,6 +3,7 @@
 <p align="center"> heavily touch comforted! pls c+h </p>
 <p align="center"> i'm always afk / offtab , pls whisp me if you want to talk </p>
 <p align="center"> i disconnect a lot so sorry for that (●´⌓`●)</p>
+<p align="center"> ponies labled 'kft' stands for 'knifantube' , meaning they're my personal designs! </p>
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=trifIe&color=grey&label=trifelings"> </p>
 
 <img width="782" height="874" alt="1000028687" src="https://github.com/user-attachments/assets/f7e4ffe2-2096-432a-8989-a77cad9911a0" />

@@ -1,5 +1,5 @@
 <p align="center"> COLOR MY TREE!! https://colormytree.me/2025/01JE1VC4SHHQQHJ4P9TRP42FMN </p>
-<p align="center"> trophy / darling , bodily 16 / any prns except they </p>
+<p align="center"> trophy / vee / darling , bodily 16 / any prns except they </p>
 <p align="center"> osdd-sys , introject heavy </p>
 <p align="center"> heavily touch comforted! pls c+h </p>
 <p align="center"> i'm always afk / offtab , pls whisp me if you want to talk </p>

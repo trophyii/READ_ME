@@ -10,6 +10,6 @@
 <img width="782" height="874" alt="1000028687" src="https://github.com/user-attachments/assets/f7e4ffe2-2096-432a-8989-a77cad9911a0" />
 
 
-<p align="center"> i love trife lots , it's ok if you don't like </p>
+<p align="center"> i love trife and veecest lots , it's ok if you don't like </p>
 <p align="center"> i also really love track and goldenwood , i gatekeep because i make first and im its #1 shipper </p>
 <p align="center"> art by _flipkat_ , trophy/knife belongs to me! </p>
